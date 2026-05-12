@@ -1,4 +1,4 @@
-# 
+# OBS Studio for PC | OBS Studio for Windows professional Effect: audio-mixing & video-encoding offers the most advanced OBS Studio for PC | OBS Studio for Windows effect, with
 
 
 
